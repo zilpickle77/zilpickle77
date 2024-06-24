@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @zilpickle77
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in reading, tennis, shtuff
+- 🌱 I’m currently learning programming!
+- 💞️ I’m looking to collaborate on somewhere
 - 📫 How to reach me: zilin.s.liu@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I'm awesome
